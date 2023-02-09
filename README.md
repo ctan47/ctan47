@@ -1,4 +1,4 @@
--An articulate Computer Engineer in Software development.
+An articulate Computer Engineer in Software development.
 Have an intense attraction and interest towards new ideas pertaining Software Development,Web development,Data Science and ceaseless learning of coding skills. 
 In future, I see myself as a successful software developer and worthy to manage things and provide integrity of work to people.
 -
